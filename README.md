@@ -1,0 +1,1 @@
+A Smart Fit é uma rede de academias de ginástica que tem como objetivo democratizar o acesso à prática de atividade física de alto padrão, com planos acessíveis e adesão facilitada aulas e treinos exclusivos.
